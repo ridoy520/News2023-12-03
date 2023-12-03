@@ -85,3 +85,10 @@ https://amzn.to/3sZXEJ0
 
 রাশিয়া-ইউক্রেন যুদ্ধ চলছে।
 চীন তার সামরিক শক্তি বৃদ্ধি করছে।
+
+LG 2023 Gram 17 Ultra Lightweight Business Laptop,13th Intel Evo Platform 12-Core i7-1360P,17.3'' IPS WQXGA (2560x1600) 16:10 Display,80Wh Battery,Backlit KB,WiFi 6E,Win11 PRO(16GB|512GB SSD) Black
+price:
+-6% $1,029.49
+
+https://amzn.to/3GLkuHP
+
