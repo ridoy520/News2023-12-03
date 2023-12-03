@@ -218,4 +218,10 @@ https://amzn.to/41lYixr
 ইউক্রেনে রাশিয়ার আগ্রাসন চলছে।
 চীনে করোনাভাইরাসের নতুন ঢেউ দেখা দিয়েছে।
 
+Adams 1099 NEC Forms 2023, 12 Recipients, 5 Part Laser 1099 Forms, 3 1096, Self Seal Envelopes & Access to New Adams Tax Forms Helper (TXA125NEC-23)
+
+Price		$15.95
+AmazonGlobal Shipping		$26.79
+Estimated Import Fees Deposit		$76.35
+Total		$119.09
 
