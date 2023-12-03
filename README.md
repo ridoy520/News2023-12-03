@@ -143,3 +143,22 @@ https://amzn.to/3GLkuHP
 প্রধানমন্ত্রী শেখ হাসিনা আজ রাষ্ট্রপতি আবদুল হামিদের সাথে দেখা করেছেন। তারা বিভিন্ন বিষয়ে আলোচনা করেছেন।
 
 
+3 Days to Live Paperback – February 14, 2023
+by James Patterson (Author)
+Kindle
+$9.99
+Read with our free app
+ 
+Paperback
+$10.00 
+142 Used from $1.23
+30 New from $7.00
+1 Collectible from $10.00
+The people closest to you can be your most dangerous enemies in this heart-pounding collection of three thrillers from master of suspense and New York Times bestselling author James Patterson.
+
+3 Days to Live: A CIA-agent bride is on her European honeymoon when she and her husband are poisoned—leaving her seventy-two hours to take revenge (with Duane Swierczynski). 
+ 
+Women and Children First: When a deal goes bad on a tech executive in Washington, DC, he turns an order to kill his family into a chance to relive his military glory days (with Bill Schweigart).  
+ 
+The Housekeepers: A Los Angeles doctor trusts her two housekeepers, but when she’s murdered in a botched attempt to steal drugs, the pair of grifters vie to control their former employer’s estate—facing off against the Russian mob (with Julie Margaret Hogben).
+https://amzn.to/41lYixr
