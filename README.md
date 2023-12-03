@@ -1,12 +1,31 @@
 # News2023-12-03
 
-Trinity College London Piano Exam Pieces Plus Exercises 2021-2023: Grade 3: 12 pieces plus exercises for Trinity College London exams 2021-2023 Sheet music – August 4, 2020
-by Trinity College London Press (Author)
-
-https://amzn.to/3sZXEJ0
-
 সংগ্রহ: H.M. Mustakim Billah Ridoy
 
+Trinity College London Piano Exam Pieces Plus Exercises 2021-2023: Grade 3: 12 pieces plus exercises for Trinity College London exams 2021-2023 Sheet music – August 4, 2020
+by Trinity College London Press (Author)
+Sheet music
+$17.38 
+3 Used from $16.33
+17 New from $14.25
+This book contains a selection of 12 pieces for the Trinity Piano Grade 3 exam, carefully chosen, graded and edited by a panel of experts, along with informative performance notes to help students and teachers get the most out of the repertoire. It also includes the exercises required for the exam, which have been newly composed for the 2021-2023 syllabus. Encompassing a wide range of styles and genres at every grade and with more pieces in each book than ever before, this progressive series provides a wealth of engaging repertoire for any pianist. An extended edition of this book is also available. This includes everything in this book along with the scales and arpeggios for the grade, an ebook of nine extra pieces (with performance notes) and downloadable audio for all 21 pieces.
+
+Contents:
+
+Les coucous bénévoles (The Benevolent Cuckoos) (Couperin)
+Andante (3rd movt from Sonata in G major, Hob. XVI:8) (Haydn )
+Rondino (no. 17 from Melodious Exercises, op. 149) (Diabelli)
+Study in D minor, op. 65 no. 40 (Loeschhorn)
+Sonatina (Gedike)
+The Highway Robber (from For Children, Sz. 42) (Bartók)
+Hound Dog (Leiber & Stoller, arr. Pam & Sam Wedgwood)
+I'm Late! (Iles)
+An Autumn Leaf (Donkin)
+nDcvr Agnt (Lynch)
+The Night of the Sleepy Panda (Tan)
+Ballad (Tadman-Robins)
+
+https://amzn.to/3sZXEJ0
 
 ২০২৩-১২-০৩
 
